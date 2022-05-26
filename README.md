@@ -1,2 +1,0 @@
-# gwfover
- www.gwfover.com
